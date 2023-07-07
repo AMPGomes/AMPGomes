@@ -1,4 +1,4 @@
-### Hello! Welcome to my GitHub's profile. 😁
+### Hello! Welcome to my profile. 😁
 
 - 💬 I'm 18 years old and I'm brazilian.
 - 📚 I’m currently learning HTML and CSS (and English too😂).
